@@ -1,5 +1,3 @@
-Overcoming Fear and Resistance to Change
-================================================================================
 
 Developing a growth mindset is critical for embracing change and thriving in a dynamic work environment. A growth mindset involves seeing challenges and obstacles as opportunities for growth and learning, rather than as threats. In this chapter, we will discuss techniques for developing a growth mindset and overcoming fear and resistance to change.
 

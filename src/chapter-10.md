@@ -1,5 +1,3 @@
-Chapter: Conclusion
-===================
 
 Summary of Key Points
 ---------------------

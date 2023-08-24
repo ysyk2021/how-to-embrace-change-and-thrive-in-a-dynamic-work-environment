@@ -1,5 +1,3 @@
-Cultivating a Positive Attitude towards Change
-======================================================================================
 
 Developing a growth mindset is essential for embracing change and thriving in a dynamic work environment. In this chapter, we explore ways to cultivate a positive attitude towards change and develop a growth mindset.
 

@@ -1,5 +1,3 @@
-The Costs of Resisting Change
-===================================================================================================
 
 Change and adaptation are essential for success in a dynamic work environment. However, individuals who resist change may face significant costs to their career development. In this chapter, we explore the costs of resisting change, and ways to embrace change and adapt effectively.
 

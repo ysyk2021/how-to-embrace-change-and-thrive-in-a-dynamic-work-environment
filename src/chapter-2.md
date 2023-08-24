@@ -1,5 +1,3 @@
-Chapter 1: Defining Change and Adaptation
-=========================================
 
 Change and adaptation are essential for success in a dynamic work environment. In this chapter, we explore what change is, the benefits of adapting to change in the workplace, and examples of successful adaptation to change in practice.
 

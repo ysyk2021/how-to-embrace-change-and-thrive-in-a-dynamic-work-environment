@@ -1,5 +1,3 @@
-Chapter 4: Building Resilience
-==============================
 
 Resilience is the ability to bounce back from setbacks and challenges, and it is essential for success in a dynamic work environment. In this chapter, we explore ways to build resilience in the face of change and uncertainty.
 

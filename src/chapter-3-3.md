@@ -1,5 +1,3 @@
-The Risks to Professional Growth and Advancement
-======================================================================================================================
 
 Change and adaptation are essential for success in a dynamic work environment. However, they can also present risks to professional growth and advancement. In this chapter, we explore the impact of change and adaptation on career development, and ways to mitigate these risks.
 

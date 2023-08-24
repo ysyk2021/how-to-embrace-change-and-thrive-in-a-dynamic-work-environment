@@ -1,5 +1,3 @@
-What is change?
-==========================================================
 
 Change is a constant in the modern workplace, and it can take many different forms. In this chapter, we define what we mean by change in the context of the workplace.
 

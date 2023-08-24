@@ -1,5 +1,3 @@
-Modeling Adaptive Behaviors and Attitudes
-========================================================================
 
 Leadership plays a crucial role in supporting change and adaptation in the workplace. In this chapter, we explore how leaders can model adaptive behaviors and attitudes to promote a culture of change and adaptation.
 

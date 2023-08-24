@@ -1,5 +1,3 @@
-Adapting to Uncertainty and Ambiguity
-=====================================================================
 
 Building resilience is essential for adapting to uncertainty and ambiguity in a dynamic work environment. In this chapter, we explore ways to build resilience and develop the skills needed to thrive in unpredictable situations.
 

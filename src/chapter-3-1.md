@@ -1,5 +1,3 @@
-Understanding the impact of change and adaptation on career development
-=============================================================================================================================================
 
 Change and adaptation are essential for success in the modern workplace, and they can also have a significant impact on career development. In this chapter, we explore the ways in which change and adaptation can impact career development.
 

@@ -1,5 +1,3 @@
-The Role of Leadership in Supporting Change and Adaptation
-=========================================================================================
 
 Leadership plays a crucial role in supporting change and adaptation in the workplace. In this chapter, we explore the importance of leadership support and the role that leaders can play in promoting a culture of change and adaptation.
 

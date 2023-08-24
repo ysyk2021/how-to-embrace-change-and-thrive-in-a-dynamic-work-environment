@@ -1,5 +1,3 @@
-Developing Coping Skills
-========================================================
 
 Building resilience is essential for adapting to change and thriving in a dynamic work environment. In this chapter, we explore ways to develop coping skills that can help individuals build resilience and manage stress and uncertainty.
 

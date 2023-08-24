@@ -1,5 +1,3 @@
-The benefits of adapting to change in the workplace
-==============================================================================================
 
 Change is a constant in the modern workplace, and the ability to adapt to change is essential for success. This chapter defines change and adaptation and highlights the benefits of adapting to change in the workplace.
 

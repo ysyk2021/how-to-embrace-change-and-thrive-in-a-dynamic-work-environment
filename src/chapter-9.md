@@ -1,5 +1,3 @@
-Chapter 8: Future Directions
-============================
 
 Innovations in Embracing Change and Thriving in a Dynamic Work Environment
 --------------------------------------------------------------------------

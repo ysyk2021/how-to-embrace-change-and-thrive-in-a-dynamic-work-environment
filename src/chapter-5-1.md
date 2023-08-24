@@ -1,5 +1,3 @@
-Understanding Resilience
-========================================================
 
 Building resilience is essential for adapting to change and thriving in a dynamic work environment. In this chapter, we explore what resilience is, why it is important, and how to build resilience.
 

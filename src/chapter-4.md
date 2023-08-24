@@ -1,5 +1,3 @@
-Chapter 3: Developing a Growth Mindset
-======================================
 
 Developing a growth mindset is essential for embracing change and thriving in a dynamic work environment. In this chapter, we explore ways to cultivate a growth mindset and overcome fear and resistance to change.
 

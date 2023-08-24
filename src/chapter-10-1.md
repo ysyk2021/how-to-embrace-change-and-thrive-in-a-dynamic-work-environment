@@ -1,5 +1,3 @@
-Summary of key points
-=================================
 
 Embracing change and thriving in a dynamic work environment are essential for success in the modern workplace. Here are some key takeaways from this book:
 

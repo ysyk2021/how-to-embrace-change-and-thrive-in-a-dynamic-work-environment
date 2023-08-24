@@ -1,5 +1,3 @@
-Chapter 7: Leadership Support
-=============================
 
 Leadership plays a crucial role in supporting change and adaptation in the workplace. In this chapter, we explore the responsibilities of leaders in promoting a culture of adaptability and embracing change.
 
