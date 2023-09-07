@@ -8,3 +8,7 @@ Throughout this book, we will explore topics such as developing a growth mindset
 By the end of this book, readers will have a toolkit of techniques for embracing change and thriving in a dynamic work environment. Remember, change is inevitable, but your ability to adapt is what will set you apart.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
