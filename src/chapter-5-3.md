@@ -1,5 +1,4 @@
-Chapter 3: Adapting to Uncertainty and Ambiguity
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's rapidly changing work environment, uncertainty and ambiguity are inevitable. Unpredictable market conditions, unexpected disruptions, and technological advancements can all contribute to a sense of unease and confusion. However, adapting to uncertainty and ambiguity is crucial for individuals and organizations seeking to thrive in a dynamic work environment. In this chapter, we will explore strategies and mindsets that can help individuals and organizations adapt to uncertainty and ambiguity effectively.
 

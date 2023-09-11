@@ -1,5 +1,4 @@
-Chapter 9: Innovations in Embracing Change and Thriving in a Dynamic Work Environment
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a rapidly evolving work environment, the ability to embrace change and thrive is crucial for individual and organizational success. This chapter explores innovative approaches and strategies that individuals can adopt to effectively navigate change and excel in a dynamic work environment.
 

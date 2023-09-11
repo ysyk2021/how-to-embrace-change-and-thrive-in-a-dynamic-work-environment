@@ -1,5 +1,4 @@
-Chapter 11: Modeling Adaptive Behaviors and Attitudes
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a dynamic work environment, modeling adaptive behaviors and attitudes is essential for thriving amidst constant change. This chapter delves into the importance of adaptability, resilience, and growth mindset in navigating a rapidly evolving professional landscape. By understanding and embodying these qualities, individuals can proactively embrace change, seize opportunities, and excel in their careers.
 

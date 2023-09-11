@@ -1,5 +1,4 @@
-Chapter 7: Seeking Out Mentorship and Coaching
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Mentorship and coaching play a crucial role in personal and professional growth, especially when it comes to embracing change and thriving in a dynamic work environment. In this chapter, we will explore the importance of seeking out mentorship and coaching, how to find suitable mentors or coaches, and the benefits they can provide.
 

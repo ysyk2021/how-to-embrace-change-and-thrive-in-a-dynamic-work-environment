@@ -1,5 +1,4 @@
-Chapter 7: Measuring the Effectiveness of Change and Adaptation Strategies
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a dynamic work environment, change is inevitable. To ensure successful adaptation and continuous improvement, it is essential to measure the effectiveness of change and adaptation strategies. This chapter will explore various methods and metrics for evaluating the impact of change initiatives, enabling individuals and organizations to gauge their progress and make informed decisions.
 

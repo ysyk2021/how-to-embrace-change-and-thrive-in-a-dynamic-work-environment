@@ -1,5 +1,4 @@
-Chapter 7: Understanding the Impact of Change and Adaptation on Career Development
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a dynamic work environment, change is constant, and the ability to adapt is crucial for career development and growth. In this chapter, we will delve into the impact that change and adaptation have on individual career development and explore strategies for thriving in a rapidly evolving professional landscape.
 

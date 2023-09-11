@@ -1,5 +1,4 @@
-Chapter 8: Cultivating a Positive Attitude Towards Change
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and dynamic work environment, change is inevitable. Organizations continuously evolve, technologies advance, and market demands shift. To thrive in such an environment, it is crucial to cultivate a positive attitude towards change. In this chapter, we will explore strategies and mindsets that can help you embrace change with optimism and adaptability.
 

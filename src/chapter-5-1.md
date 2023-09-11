@@ -1,5 +1,4 @@
-Chapter 5: Understanding Resilience
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resilience is a vital trait that enables individuals and organizations to navigate and thrive in a dynamic work environment. In this chapter, we will explore the concept of resilience and discuss strategies for developing and enhancing resilience skills.
 

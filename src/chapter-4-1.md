@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Fear and Resistance to Change
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Change is an inevitable part of life, especially in a dynamic work environment. However, people often resist change due to fear of the unknown, uncertainty, and the potential disruption it may cause. In this chapter, we will explore strategies and techniques to overcome fear and resistance to change, enabling you to embrace change and thrive in your professional journey.
 

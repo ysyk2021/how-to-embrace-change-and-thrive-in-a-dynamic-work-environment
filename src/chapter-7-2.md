@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Barriers to Effective Implementation
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Implementing change in a dynamic work environment can be challenging due to various barriers that may arise. This chapter will explore common barriers to effective implementation and provide strategies to overcome them, enabling individuals and organizations to embrace change successfully.
 

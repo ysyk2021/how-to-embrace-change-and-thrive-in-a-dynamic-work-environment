@@ -1,5 +1,4 @@
-Chapter 2: The Benefits of Adapting to Change in the Workplace
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Change is not always easy, especially in the fast-paced and ever-evolving world of work. However, embracing change and being adaptable can bring numerous benefits to individuals and organizations alike. In this chapter, we will explore the advantages of adapting to change in the workplace and how it can contribute to personal growth, organizational success, and a thriving work environment.
 

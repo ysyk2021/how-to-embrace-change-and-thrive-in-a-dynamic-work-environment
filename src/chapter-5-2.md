@@ -1,5 +1,4 @@
-Chapter 5: Developing Coping Skills
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a dynamic work environment, change is inevitable, and developing effective coping skills is essential for navigating through uncertainty and challenges. This chapter will explore strategies and techniques to develop coping skills that can help individuals embrace change, manage stress, and thrive in their professional lives.
 

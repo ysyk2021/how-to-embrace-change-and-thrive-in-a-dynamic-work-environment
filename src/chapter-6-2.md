@@ -1,5 +1,4 @@
-Chapter 5: Building New Skills and Knowledge
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a dynamic work environment, the ability to adapt and acquire new skills is essential for personal growth and professional success. As technology advances and industries evolve, it is crucial to continuously develop your skills and expand your knowledge base to stay ahead of the curve. In this chapter, we explore strategies and resources to help you build new skills and knowledge effectively.
 

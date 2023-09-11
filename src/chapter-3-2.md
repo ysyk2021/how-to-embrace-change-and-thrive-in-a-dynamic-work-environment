@@ -1,5 +1,4 @@
-Chapter 6: The Costs of Resisting Change
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a dynamic work environment, change is inevitable. However, many individuals and organizations resist change due to various reasons. In this chapter, we will explore the costs associated with resisting change and the negative impact it can have on personal and professional growth.
 

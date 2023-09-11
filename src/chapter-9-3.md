@@ -1,5 +1,4 @@
-Chapter 10: Looking Ahead to the Future of a Workforce that Embraces Change
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a dynamic work environment, embracing change is not only crucial for individual success but also for the future of the workforce as a whole. This chapter explores the trends, opportunities, and challenges that lie ahead for a workforce that actively embraces change. By understanding and preparing for the future, individuals can position themselves for continued growth and thrive in an ever-evolving professional landscape.
 

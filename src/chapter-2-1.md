@@ -1,5 +1,4 @@
-Chapter 1: What is Change?
-==========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Change is an inevitable and constant force that shapes our lives and the world around us. In this chapter, we will explore the concept of change and its significance in a dynamic work environment. We will delve into the different types of change, the drivers behind change, and the impact it has on individuals and organizations.
 

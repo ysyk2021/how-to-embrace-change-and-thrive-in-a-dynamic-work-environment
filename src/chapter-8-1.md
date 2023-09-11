@@ -1,5 +1,4 @@
-Chapter 8: The Role of Leadership in Supporting Change and Adaptation
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective leadership plays a crucial role in supporting change and adaptation within a dynamic work environment. In this chapter, we will explore the key responsibilities and strategies that leaders can employ to foster a culture of change, facilitate adaptation, and promote organizational success.
 
